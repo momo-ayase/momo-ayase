@@ -7,4 +7,4 @@
 
 <div align="center">
 
-[RENTRY](https://rentry.co/obitouchiha) ; [ATABOOK](https://obito.atabook.org/) ; [STRAWPAGE](https://obiito.straw.page)
+[RENTRY](https://rentry.co/momo-okarun) ; [ATABOOK](https://obito.atabook.org/) ; [STRAWPAGE](https://obiito.straw.page)
