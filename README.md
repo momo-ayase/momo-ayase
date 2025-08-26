@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=momo-ayase&color=grey&label=⟡&style=plastic)
 
-<img src="https://platform.polygon.com/wp-content/uploads/sites/2/2024/09/DAN-DA-DAN-Trailer-Still-%C2%A9Yukinobu-Tatsu_SHUEISHA-DANDADAN-Production-Committee-2.jpg?quality=90&strip=all&crop=0%2C3.4613147178592%2C100%2C93.077370564282&w=1200"/>
-</p>
 
-<div align="center">
+<img width="500" height="500" alt="20dbaa4775848431b6981c8d71830b58-removebg-preview" src="https://github.com/user-attachments/assets/1b9ef284-c507-4318-ad50-ce4dcde1f571" />
 
-[RENTRY](https://rentry.co/momo-okarun) ; [ATABOOK](https://obito.atabook.org/) ; [STRAWPAGE](https://obiito.straw.page)
+
+
+[RENTRY](https://rentry.co/momo-okarun) ; [ATABOOK](https://obito.atabook.org/) ; [STRAWPAGE](https://obkkyuri.straw.page)
