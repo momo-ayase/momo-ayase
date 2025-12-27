@@ -6,4 +6,4 @@
 
 
 
-[RENTRY](https://rentry.co/momo-okarun) ; [ATABOOK](https://obito.atabook.org/) ; [STRAWPAGE](https://obkkyuri.straw.page)
+[RENTRY](https://rentry.co/momo-okarun) ; [ATABOOK](https://obito.atabook.org/)
